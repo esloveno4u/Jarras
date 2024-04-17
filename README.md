@@ -1,1 +1,1 @@
-dsaewq
+Aqui esta la practica 1 resuelta por nuestro amigo y vecino pimentel
